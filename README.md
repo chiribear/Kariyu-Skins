@@ -12,7 +12,7 @@ Here's the skins Kariyu uses on stream! If you can't find the link let us know s
 ![](https://i.imgur.com/H9be88V.png)
 
 # [✦ - Ninomae Ina'nis - ✦ - (Aristia Edit Gameplay)](https://drive.google.com/file/d/1ilNh_0J4LvWIzlkQWBiR0zOUv7c-9Asz/view?usp=sharing)
-![](https://i.imgur.com/rZoNGI6.png)
+![](https://i.imgur.com/Upihwph.png)
 
 # [- kariyu cat -](https://drive.google.com/file/d/1N98ftum-w72Frk_S6f-bBdz-dfjEHHqm/view?usp=sharing)
 ![](https://i.imgur.com/3s00Og8.png)
