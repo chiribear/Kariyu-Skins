@@ -43,7 +43,7 @@ Here's the skins Kariyu uses on stream! If you can't find the link let us know s
 ![](https://i.imgur.com/C68U74d.png)
 
 # [Aristia(Edit) Green Instafade](https://drive.google.com/file/d/183miAVOfaG2Lx9KmVoa4Omaoz8_-VA0J/view)
-![](https://i.imgur.com/C68U74d.png)
+![](https://i.imgur.com/ICCcKci.png)
 
 
 
