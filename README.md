@@ -45,5 +45,6 @@ Here's the skins Kariyu uses on stream! If you can't find the link let us know s
 # [Aristia(Edit) Green Instafade](https://drive.google.com/file/d/183miAVOfaG2Lx9KmVoa4Omaoz8_-VA0J/view)
 ![](https://i.imgur.com/ICCcKci.png)
 
-
+# [《CK》 Bacon boi 1.0 Blue Instafade](https://drive.google.com/file/d/1EoKNVMIPGFskXAtyU1O4-MIzzUGWKMAG/view)
+![](https://i.imgur.com/rQOFLmu.png)
 
