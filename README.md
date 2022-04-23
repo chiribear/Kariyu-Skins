@@ -48,4 +48,5 @@ Here's the skins Kariyu uses on stream! If you can't find the link let us know s
 # [《CK》 Bacon boi 1.0 Blue Instafade](https://drive.google.com/file/d/1EoKNVMIPGFskXAtyU1O4-MIzzUGWKMAG/view)
 ![](https://i.imgur.com/rQOFLmu.png)
 
-
+# [-BANANAHIRA](https://drive.google.com/file/d/1M_SB0E-f8JakVPyYTzlefhmM82md3y1-/view)
+![](https://i.imgur.com/QbTiksi.png)
