@@ -18,9 +18,6 @@ Here's the skins Kariyu uses on stream! If you can't find the link let us know s
 ![](https://i.imgur.com/3s00Og8.png)
 
 
-# [SmoreJoy (ErikXilverSkill) ver. Stetson](https://drive.google.com/file/d/1MPj_pcP9mUSnz4YvIXpLoEkMWTM_hPLx/view?usp=sharing)
-![](https://i.imgur.com/wMdClkX.png)
-
 # [-GawrGura BB](https://drive.google.com/file/d/1MPj_pcP9mUSnz4YvIXpLoEkMWTM_hPLx/view?usp=sharing)
 ![](https://i.imgur.com/t0Mv5rd.png)
 
