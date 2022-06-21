@@ -52,5 +52,5 @@ Here's the skins Kariyu uses on stream! If you can't find the link let us know s
 ![](https://i.imgur.com/6U4bDTe.png)
 
 # [rem [nk]](https://drive.google.com/file/d/1iWhOJTTTWZ6lSBdUmLhdRlYrBCtYDOVA/view))
-
+![](https://i.imgur.com/quKRGOt.png)
 
