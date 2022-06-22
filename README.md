@@ -38,4 +38,4 @@ Here's the skins Kariyu uses on stream! If you can't find the link let us know s
 ![](https://i.imgur.com/6U4bDTe.png)
 
 # [REM WITH AUUUUUGHHH COMBOBURST](https://drive.google.com/file/d/1KcMnOLP7rGp2KD1yxzAWJAIy7FhJFPB8/view?usp=sharing)
-![]
+![]https://i.imgur.com/CO6STf2.png
