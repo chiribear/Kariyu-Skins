@@ -1,8 +1,8 @@
 # Kariyu-Skins
 Here's the skins Kariyu uses on stream! If you can't find the link let us know so we can provide it for you :>
 
-# [tranquil sublimity edit](https://drive.google.com/drive/folders/106O9DQjVtIt1EYpArlCBA-7adWkdaaJP)
-![](https://i.imgur.com/iA0H103.png)
+# [prawsiloc] (https://drive.google.com/file/d/139EFr8cDMwu123MgUe1TZHsL916iQsnx/view?usp=sharing)
+![](https://i.imgur.com/hZ09Gzn.jpg)
 
 # [rem [nk]](https://drive.google.com/file/d/1iWhOJTTTWZ6lSBdUmLhdRlYrBCtYDOVA/view))
 ![](https://i.imgur.com/0HhERku.jpg)
