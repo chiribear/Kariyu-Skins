@@ -4,6 +4,9 @@ Here's the skins Kariyu uses on stream! If you can't find the link let us know s
 # [kariyu updated bacon skin](https://drive.google.com/file/d/1XpC-rgrB0hz3ugoj1N4QbBM7HZjcJF6K/view?usp=sharing)
 ![](https://i.imgur.com/hM3SCsA.png)
 
+# [cinnamoroll x miku](https://www.reddit.com/r/OsuSkins/comments/x47dp4/hatsune_miku_30_miku_x_cinnamoroll_169_std_only/)
+![](https://i.imgur.com/sk5Ymwe.png)
+
 # [kariyu / varv bacon blue](https://drive.google.com/file/d/1j0BT9V_GaujSP17srjx_K14ndGsebJpW/view?usp=sharing)
 ![](https://i.imgur.com/Na5N2m3.jpg)
 
