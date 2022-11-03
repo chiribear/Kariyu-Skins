@@ -1,7 +1,9 @@
 # Kariyu-Skins
 Here's the skins Kariyu uses on stream! If you can't find the link let us know so we can provide it for you :>
-# [bloo bacon](https://drive.google.com/file/d/1NhpXotIqLqjnsSxHAt6SnwrR0yLuOzaM/view?usp=sharing)
-![](https://i.imgur.com/G650IVD.jpg)
+
+# [kariyu updated bacon skin](https://drive.google.com/file/d/1XpC-rgrB0hz3ugoj1N4QbBM7HZjcJF6K/view?usp=sharing)
+![](https://i.imgur.com/hM3SCsA.png)
+
 # [kariyu / varv bacon blue](https://drive.google.com/file/d/1j0BT9V_GaujSP17srjx_K14ndGsebJpW/view?usp=sharing)
 ![](https://i.imgur.com/Na5N2m3.jpg)
 
