@@ -1,11 +1,8 @@
 # Kariyu-Skins
 Here's the skins Kariyu uses on stream! If you can't find the link let us know so we can provide it for you :>
 
-# [wtf](https://drive.google.com/drive/folders/106O9DQjVtIt1EYpArlCBA-7adWkdaaJP)
-![](https://i.imgur.com/WCUA02L.jpg)
-
-# [kariyu updated bacon skin](https://drive.google.com/file/d/1XpC-rgrB0hz3ugoj1N4QbBM7HZjcJF6K/view?usp=sharing)
-![](https://i.imgur.com/hM3SCsA.png)
+# [rektygon vaxedit](https://rektygon.s-ul.eu/pekpQrxb)
+![](https://camo.githubusercontent.com/debed184e59db3b6aa2ea7e1a53c6f240e49a6bdfb115f686c3c71795db889fd/68747470733a2f2f692e696d6775722e636f6d2f6366555432486c2e706e67)
 
 # [cinnamoroll x miku](https://www.reddit.com/r/OsuSkins/comments/x47dp4/hatsune_miku_30_miku_x_cinnamoroll_169_std_only/)
 ![](https://i.imgur.com/sk5Ymwe.png)
