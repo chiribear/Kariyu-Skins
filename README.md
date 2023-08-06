@@ -1,6 +1,9 @@
 # Kariyu-Skins
 Here's the skins Kariyu uses on stream! If you can't find the link let us know so we can provide it for you :>
 
+#[omori](https://i.imgur.com/8nKnarO.jpg)
+![](https://drive.google.com/u/0/uc?id=1kr6f46oYVszXCEhcP2hyycdYMezidazS&export=download)
+
 # [rektygon vaxedit](https://rektygon.s-ul.eu/pekpQrxb)
 ![](https://camo.githubusercontent.com/debed184e59db3b6aa2ea7e1a53c6f240e49a6bdfb115f686c3c71795db889fd/68747470733a2f2f692e696d6775722e636f6d2f6366555432486c2e706e67)
 
