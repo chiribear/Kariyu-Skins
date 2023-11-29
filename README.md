@@ -1,6 +1,8 @@
 # Kariyu-Skins
 Here's the skins Kariyu uses on stream! If you can't find the link let us know so we can provide it for you :>
 
+# [windows](https://skins.osuck.net/skins/2961?v=0)
+![](https://skimg.osuck.net/2ab7f668f254349cb8c824e09cf6501e.webp)
 # [omori](https://drive.google.com/u/0/uc?id=1kr6f46oYVszXCEhcP2hyycdYMezidazS&export=download)
 ![](https://i.imgur.com/8nKnarO.jpg) 
 
